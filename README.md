@@ -2,3 +2,6 @@
 
 Gustavo Henrique - Programador de Softwares e Jogos Eletrônicos - Busco trabalhar com esse mercado, por sempre ser fascinado.
 Isso é uma revelação que todo mundo já sabe, eu acho.
+
+
+ola!
